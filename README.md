@@ -58,7 +58,7 @@
 ## 🌐 Connect With Me
 
 - 🔗 LinkedIn:https://www.linkedin.com/in/deepika-m-1942a2287/
-- 📧 Email: your-deepikamishra1214@gmail.com
+- 📧 Email: deepikamishra1214@gmail.com
 
 ---
 
